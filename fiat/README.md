@@ -1,1 +1,1 @@
-I doenh know wehy or hoew I'd use these, but i doent wanth them in my AM notes
+I don't know why or how I'd use these, but I don't want them in my AM notes
